@@ -1,11 +1,16 @@
 # Denis Glazin		
 
-
 __________________
 ### _Junior Front-end developer (treinee)_
 ### _Developer_
 
+[denisglazin@gmail.com](mailto:denisglazin@gmail.com)
 
+Discord: denisovich#2625
+
+Gomel city
+
+Belarus
 __________________
 
 **My career Objective**
